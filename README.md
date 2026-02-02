@@ -1,0 +1,2 @@
+# 27a2e590-4b46-49e3-a784-0b6046675b25-hero-3
+Hero section variant 3 for 27a2e590-4b46-49e3-a784-0b6046675b25
